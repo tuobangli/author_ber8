@@ -1,2 +1,2 @@
 # author_ber8
-Contact W. Brent Lindquist 
+stay in Kuala Lumpur, apply B-2
