@@ -1,2 +1,2 @@
 # author_ber8
-stay in Kuala Lumpur, apply B-2.
+stay in Kuala Lumpur for one week, apply B-2.
