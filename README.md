@@ -1,3 +1,3 @@
 # author_ber
 
-apply visa in Seoul.
+to Saipan
