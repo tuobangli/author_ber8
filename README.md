@@ -1,5 +1,3 @@
 # author_ber
-
-to Jeju
-
+stay in Kuala Lumpur.
 
