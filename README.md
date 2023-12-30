@@ -1,4 +1,4 @@
 # author_ber
-stay in Saipan, waiting for DS-2019.
+stay in Saipan
 
-19
+2
