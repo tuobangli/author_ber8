@@ -1,2 +1,1 @@
-Saipan Beach Hotel
-8
+Northern Marianas College 
