@@ -1,1 +1,1 @@
-Northern Marianas College 
+go to Northern Marianas College tomorrow 8
