@@ -1,1 +1,1 @@
-go to Northern Marianas College tomorrow 8
+not go to Northern Marianas College today.
