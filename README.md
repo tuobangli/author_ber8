@@ -1,1 +1,1 @@
-capital hotels
+holiday saipan hotel.
