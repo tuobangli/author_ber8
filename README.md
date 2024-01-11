@@ -1,3 +1,3 @@
-waiting for reply, apply Berkeley extension.
+waiting for reply, visiting student researcher.
 
-3
+6
