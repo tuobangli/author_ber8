@@ -1,1 +1,1 @@
-upload more videos
+upload more education videos, limit the novality.
