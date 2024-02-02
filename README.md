@@ -1,4 +1,4 @@
 This is all. https://www.youtube.com/playlist?list=PLv12WMZUyCNCxgQdS8wguSWs60uKttHaM  
 
 14
-upload a combined video 
+Change the introduction, I studied in GT, and currently studied in Berkeley.
