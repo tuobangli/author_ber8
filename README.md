@@ -1,4 +1,4 @@
 This is all. https://www.youtube.com/playlist?list=PLv12WMZUyCNCxgQdS8wguSWs60uKttHaM  
 
 14
-Change the introduction, I studied in GT, and currently studying Berkeley course.
+Change the introduction, I studied in GT, and currently a Berkeley student.
