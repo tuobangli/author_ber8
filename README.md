@@ -1,4 +1,3 @@
-This is all. https://www.youtube.com/playlist?list=PLv12WMZUyCNCxgQdS8wguSWs60uKttHaM  
+This is all. https://www.youtube.com/watch?v=po6GjnQrp00&list=PLv12WMZUyCNDVhltyXt9cLKJ-92fNYdfe
 
-14
-Change the introduction, I studied in Guangdong Technion and taking Berkeley courses now.
+26
