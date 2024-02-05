@@ -1,1 +1,1 @@
-Sent invitation to Sandrid 5
+Sent invitation to Sandrine 5
