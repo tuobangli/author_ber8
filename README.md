@@ -1,2 +1,1 @@
-Nonasymptotic is safe. 
-28
+Sent invitation to Hubbard 28
